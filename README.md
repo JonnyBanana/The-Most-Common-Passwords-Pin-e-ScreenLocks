@@ -34,3 +34,34 @@ If u need a Wordlist Packs can find a very good resource from here: https://gith
 
 
 
+Recently a leak from the Austrian police was released and in a thread on reddit I found these interesting statistics on the length of the passwords, the frequency of the characters and so on.
+
+![Alt text](https://i.imgur.com/NqtXVcT.jpg "The-Most-Common-Passwords-Pin-e-ScreenLocks")
+
+
+
+
+![Alt text](https://i.imgur.com/DgSz4zG.jpg "The-Most-Common-Passwords-Pin-e-ScreenLocks")
+
+
+
+![Alt text](https://i.imgur.com/bTUS7kD.jpg "The-Most-Common-Passwords-Pin-e-ScreenLocks")
+
+
+![Alt text](https://i.imgur.com/eBaDF90.jpg "The-Most-Common-Passwords-Pin-e-ScreenLocks")
+
+
+![Alt text](https://i.imgur.com/0PWKZae.jpg "The-Most-Common-Passwords-Pin-e-ScreenLocks")
+
+![Alt text](https://i.imgur.com/yRKfHxs.jpg "The-Most-Common-Passwords-Pin-e-ScreenLocks")
+
+what do I think ???
+
+
+![Alt text](https://i.imgur.com/jqZgU3x.jpg "The-Most-Common-Passwords-Pin-e-ScreenLocks")
+
+
+;););) ENJOY YOUR MEAL!!! ;););)
+
+
+
