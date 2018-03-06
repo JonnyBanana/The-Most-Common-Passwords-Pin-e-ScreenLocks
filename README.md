@@ -10,6 +10,8 @@ I hope you enjoy it
 
 full album here: https://imgur.com/a/4jdpT
 
+If u need a Wordlist Packs can find a very good resource from here: https://github.com/FingerLeakers/Probable-Wordlists
+
 
 ![Alt text](https://i.imgur.com/dwkMrP7.jpg "The-Most-Common-Passwords-Pin-e-ScreenLocks")
 
