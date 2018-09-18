@@ -14,7 +14,7 @@ I Added a lot of Wordlist for Dictionary Attack, they are tens of files and cont
 hundreds of thousands of passwords, accounts and much more...
 </br>
 
-here instead you can get a lot of detailed statistics on every aspect and on any kind of passowrds
+here instead you can get a lot of detailed statistics on every aspect and on any kind of passwords
 </br>
 http://passwordresearch.com/stats/statindex.html
 
